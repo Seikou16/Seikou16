@@ -19,8 +19,8 @@ Além disso, atualmente sou formado em **Auxiliar de Informática** para Interne
 
 ## 👨‍🎓 Goals
 
- - **USP** - Universidade de São Paulo, Bacharel em Ciência da Computação.
- - **FATEC** - Análise e Desenvolvimento de Sistemas.
+ - **USP** - Universidade de São Paulo - Bacharelado em Administração (Cursando)
+ - **FATEC** - Análise e Desenvolvimento de Sistemas
 
 <h1 align="center"> Thanks For Reading! 😉 </h1>
 
